@@ -1,0 +1,1 @@
+Tham gia [cộng đồng Thư viện mở trên Discord tại đây](https://discord.gg/m4y96pXx3A) để cùng thảo luận về mọi thứ liên quan đến Thư viện mở và đọc sách
